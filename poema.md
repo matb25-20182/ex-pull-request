@@ -2,5 +2,5 @@
     Tinha uma pedra no meio do caminho.
     Tinha uma pedra.
     No meio do caminho tinha uma pedra.
-     
-	  Autor: Carlos Drummond de Andrade
+
+    Autor: Carlos Drummond de Andrade
