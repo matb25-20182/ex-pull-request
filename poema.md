@@ -9,3 +9,5 @@
     Tinha uma pedra.
     Tinha uma pedra no meio do caminho.
     No meio do caminho tinha uma pedra.
+
+                    - Carlos Drummond de Andrade
