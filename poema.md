@@ -1,3 +1,5 @@
+    No Meio do Caminho
+
     No meio do caminho tinha uma pedra.
     Tinha uma pedra no meio do caminho.
     Tinha uma pedra.
